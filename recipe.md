@@ -1,0 +1,2 @@
+First thing to start with is boiling the milk or you can use it cold too. Then start making nan. Take some flour, add little water, make the dough and ten make the nan. You can use the leftover nan. Now that your nan is ready, we can break it into pieces by our hand or you can use grinder to grind it. Size of piece depends on you!!! I will suggest you to make it by hands. Now add your milk to the nan pieces and your Milky Nan is ready for stomach ride. You can add sugar to make it sweet.
+This is mine personal favourite childhood two minutes recipe. Hope you like it!!!  

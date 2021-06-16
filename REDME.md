@@ -1,0 +1,2 @@
+Milky Nan
+It is a fun time recipend can be actully helpful when you don't have nothing to cook. You can eat this dish whenever you want just with a nan,some milk and sugar if you want. This recipe just takes few minutes to get ready and is fully satisfying. Hope you enjoy it! 
